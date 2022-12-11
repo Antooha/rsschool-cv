@@ -37,5 +37,5 @@ ___
 ## Languages
 ___
 Russian - native speaker<br/>
-English - A1 (A2 in process)
+English - A1, A2 in process
 
